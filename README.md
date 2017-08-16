@@ -4,4 +4,8 @@ Isartalstr. 44
 
 80469 München
 
-089 20187185
+munich home
++49 eight nine / two zero one eight seven one eight five
+
+mobile
++49 one seven two / four three four three two one zero
